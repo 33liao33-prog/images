@@ -1,0 +1,9 @@
+amagi_sunao/<img width="1000" height="2500" alt="130-9" src="https://github.com/user-attachments/assets/4a8d00f9-a647-41fd-9d57-245b599950f5" />
+<img width="480" height="1200" alt="130-8" src="https://github.com/user-attachments/assets/76a62f05-bdd0-43cd-9909-a5c64c233ff7" />
+<img width="2697" height="2500" alt="130-7" src="https://github.com/user-attachments/assets/2e6a407d-f197-4321-b006-628982c2f1ac" />
+<img width="480" height="1200" alt="130-6" src="https://github.com/user-attachments/assets/2a2e91ce-01b8-413e-84ac-404a205a2aed" />
+<img width="480" height="1200" alt="130-5" src="https://github.com/user-attachments/assets/eb16d973-8661-48a0-966a-c3f30abbf9f8" />
+<img width="1055" height="1260" alt="130-4" src="https://github.com/user-attachments/assets/e06503a5-bbf6-463a-9dbe-9a8d147b45aa" />
+<img width="480" height="1200" alt="130-3" src="https://github.com/user-attachments/assets/238b2f3d-bafd-4d73-923a-cf5402ce0b38" />
+<img width="480" height="1200" alt="130-2" src="https://github.com/user-attachments/assets/d02660b9-4e05-4860-8a21-cb9d0b8e2b9d" />
+<img width="480" height="1200" alt="130-1" src="https://github.com/user-attachments/assets/42c105b5-878b-4057-b96c-8f7cfa285fb2" />
